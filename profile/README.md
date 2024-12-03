@@ -21,7 +21,6 @@ We are experienced in:
 - Visit our website: [nxtgen.digital](https://nxtgen.digital)
 - Join our Discord server to get quotes and discuss your projects: [Discord](#)
 
-At NXTGenDigital, we’re not just service providers — we’re your creative partners. Whether you’re starting from scratch or upgrading, let’s make your digital vision a reality.
-
 ---
+At NXTGenDigital, we’re not just service providers — we’re your creative partners. Whether you’re starting from scratch or upgrading, let’s make your digital vision a reality.
 *NXTGenDigital © 2024. All Rights Reserved.*
